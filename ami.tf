@@ -1,4 +1,5 @@
 God is wondefull 
 God is faithful 
 God is great
-God is love 
+God is love
+God loves Amah 
